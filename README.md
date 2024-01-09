@@ -1,0 +1,7 @@
+The Jack Wingard Foundation is dedicated to empowering individuals to lead happy, healthy, and productive lives. As a foundation, we actively invest in shares of companies that align with our mission and values. Our commitment extends to supporting businesses and initiatives that contribute to the overall well-being of individuals and communities.
+
+Through strategic share ownership, the Jack Wingard Foundation aims to foster positive change in various sectors, including healthcare, education, and technology. We believe that by investing in companies with a focus on innovation, social impact, and sustainability, we can contribute to creating a better future for everyone.
+
+Our dedication to promoting happiness and well-being goes beyond financial investments. The Jack Wingard Foundation actively engages with its portfolio companies, encouraging them to prioritize ethical practices, diversity and inclusion, and corporate responsibility. By fostering a culture of responsibility and accountability, we aim to amplify the positive impact of the companies in which we hold shares.
+
+Ultimately, our vision is to play a role in building a society where individuals not only thrive personally and professionally but also contribute to the collective welfare of the global community. The Jack Wingard Foundation remains steadfast in its mission to make strategic investments that lead to a brighter and more fulfilling future for all.
